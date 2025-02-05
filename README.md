@@ -2,7 +2,11 @@
 
 Marina Gold, influencer y actriz de contenido para adultos, se ha convertido en tendencia en redes sociales tras protagonizar un insólito incidente en un baño público. Su descuido durante un directo en la plataforma Kick le costó un baneo temporal y ha desatado todo tipo de comentarios en internet. Pero, ¿qué fue lo que realmente ocurrió?
 
-Todo sucedió mientras Marina Gold realizaba un directo en las calles de Lima, específicamente en el Jockey Plaza. En un momento de la transmisión, decidió entrar al baño público sin detener el stream.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
 Confiada en que había colocado la cámara en un ángulo seguro, levantó su vestido sin percatarse de que su intimidad quedaba expuesta ante cientos de espectadores en vivo.
 
@@ -12,9 +16,6 @@ Fui al baño y puse la cámara en un ángulo que, según yo, pensé que no se me
 Relató la influencer en una entrevista con Radio Exitosa.
 Marina Gold fue baneada de Kick
 El error no pasó desapercibido para la plataforma, que inicialmente la baneó por seis días. Sin embargo, tras apelar la decisión y explicar que se trató de un accidente, la sanción se redujo a 15 horas.
-
-
-Les escribí y les dije que disculpen, fue de casualidad. No es que lo hiciera a propósito. Felizmente, ya me devolvieron mi cuenta, aseguró la creadora de contenido.
 
 A pesar del breve castigo, el video del incidente no tardó en viralizarse, generando revuelo en diversas plataformas y convirtiéndola en tendencia.
 
